@@ -67,7 +67,7 @@ During this time, Dr. Jugenburg had the opportunity to learn from some of the be
 - [RealSelf](https://www.realself.com/dr/martin-jugenburg-toronto-on "Dr. Martin Jugenburg on RealSelf")
 - [CosmedicList](https://www.cosmediclist.com/profile/martin-jugenburg-md-2/ "Dr. Martin Jugenburg on CosmedicList.com")
 - [MakeMeHeal](http://m.makemeheal.com/directory/viewall.php?userentry_id=27111 "Dr. Martin Jugenburg review on MakeMeHeal.com")
-- [Gynecomastia.org](https://www.gynecomastia.org/forum/surgery-experiences/13/scarless-surgery-with-dr-martin-jugenburg-in-toronto/28840 "Scarless" Surgery with Dr. Martin Jugenburg in Toronto")
+- [Gynecomastia.org](https://www.gynecomastia.org/forum/surgery-experiences/13/scarless-surgery-with-dr-martin-jugenburg-in-toronto/28840 '"Scarless" Surgery with Dr. Martin Jugenburg in Toronto')
 
 
 ## Toronto Cosmetic Surgery Institute
